@@ -1,1 +1,1 @@
-#### Make sure to submit your assignmwnt on time
+#### Make sure to submit your assignment on time
